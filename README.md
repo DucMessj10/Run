@@ -1,2 +1,2 @@
 # Run
-Checking upgrade new for laptop :))
+@DucMessj10 Checking upgrade new for laptop $AMD >.< :)) -.-
